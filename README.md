@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **0001patelom@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Nk_KJELxfYkS4H2RfuzFgm9VhsmeULiw/view?usp=drivesdk](https://drive.google.com/file/d/1Nk_KJELxfYkS4H2RfuzFgm9VhsmeULiw/view?usp=drivesdk)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1iFGKM8bKFeKUQwBV0RrW1gcaQHTZwiry/view?usp=sharing)
 
 - ⚡ Fun fact **I love learning new things.**
 
